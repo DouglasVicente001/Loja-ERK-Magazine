@@ -1,6 +1,6 @@
 # Formas de pagamento :heavy_dollar_sign:
 
-A erk magazine procura melhor te atender sempre,  as formas de pagamento não será diferente não é mesmo? Temos as mais versáteis formas de pagamento, confira:
+A loja erk magazine procura melhor te atender sempre,  as formas de pagamento não será diferente não é mesmo? Temos as mais versáteis formas de pagamento, confira:
 
 1. Cartão Debito/Crédito "Sendo crédito até em 6x"
 2. Pix
