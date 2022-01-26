@@ -1,6 +1,6 @@
 # Calçados Femininos de encantar os olhos  :heart_eyes:
 
-####_Abuse das nossas megas ofertas!!!_
+####_Abuse das nossas megas ofertas...
 
 - Tênis Feminino
 
@@ -20,7 +20,7 @@
 
   [ComfortFlex](https://www.erkmagazine.com.br/produto/333228/comfortflex-sandalia-nude-1951404)
 
-  ##### _Não fique fora dessa!!!​ ​ :running_woman:_
+  ##### _Não fique fora dessa!!!  :running_woman:_
 
   ​
 
