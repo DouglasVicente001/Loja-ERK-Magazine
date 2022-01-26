@@ -10,7 +10,7 @@
 
 ​[Penalty Futsal](https://www.erkmagazine.com.br/produto/355888/penalty-futsal-atf-americas-ix-preto-e-branca) "Não perca os fut de domingo com os amigos e adquira já seu penalty de preço imbátivel" :point_left:
 
-#### ERK Magazine 
+#### ERK Magazine! 
 
 
 
