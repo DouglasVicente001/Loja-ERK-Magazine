@@ -7,4 +7,4 @@ A loja erk magazine procura melhor te atender sempre,  as formas de pagamento n�
 3. Carnê da loja "ErkMagazine"
 4. Transferência Bancária
 
-Se a sua compra exceder a 500 reais nós parcelamos tudo em até 10x no cartão. Corra para Erk Magazine a melhor loja de calçados do vale do paraíba.
+Se a sua compra exceder a 500 reais nós parcelamos tudo em até 10x no cartão e se decidir levar o produto á vista você ganha 10% de desconto. Corra para Erk Magazine a melhor loja de calçados do vale do paraíba.
